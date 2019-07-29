@@ -1,0 +1,1 @@
+prva izmena fajla
